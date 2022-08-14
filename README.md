@@ -19,4 +19,6 @@
   ⠁⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⠙⠿⠿⠛⠋⠄⣸⣦⣠⣿⣿⣿⣿⣿⣿⣿
   ```
   
+  <img src="https://i1.sndcdn.com/artworks-VgEzOXOyfH9EzglG-tZBcrA-t500x500.jpg">
+  
 </details>
